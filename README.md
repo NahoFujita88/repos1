@@ -1,5 +1,6 @@
 # repos1
 I'm natcho.
-K
+Kyou ha ame desitane.
+Ganbarimasyou.
 
 ##
